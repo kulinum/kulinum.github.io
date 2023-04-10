@@ -1,1 +1,0 @@
-# kulinum.github.io
